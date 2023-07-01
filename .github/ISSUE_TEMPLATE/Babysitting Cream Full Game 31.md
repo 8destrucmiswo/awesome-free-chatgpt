@@ -1,0 +1,15 @@
+Babysitting Cream is a video game that was first released in Flash format on February 5, 2013. The current and final version of the game is v1.01. Due to some technical issues with Flash, the developers decided to remake the game using GameMaker, a software that allows creating games without coding. This would make the game easier to update and fix in the future.[2][3][4]
+  
+The game is a dating simulator that features a crossover of characters from the Sonic the Hedgehog and Mario franchises. The player takes the role of Sonic, who agrees to babysit Cream, a young rabbit who lives next door. The game involves interacting with various characters and exploring different locations, while trying to seduce Cream and her friends.[5][6]
+ 
+**DOWNLOAD ❤ [https://t.co/0w8MziPyBG](https://t.co/0w8MziPyBG)**
+
+
+  
+The game has a reputation for being very explicit and controversial, as it contains scenes of sexual activity between Sonic and underage characters. The game also features references to drugs, alcohol, violence, and other mature themes. The game has been criticized for its poor quality, lack of originality, and ethical issues.[7][8][9]
+ 
+babysitting cream complete version 31,  babysitting cream all endings 31,  babysitting cream walkthrough 31,  babysitting cream hacked 31,  babysitting cream latest update 31,  babysitting cream online free 31,  babysitting cream download 31,  babysitting cream cheats 31,  babysitting cream sonic game 31,  babysitting cream fan art 31,  babysitting cream guide 31,  babysitting cream secrets 31,  babysitting cream characters 31,  babysitting cream gameplay 31,  babysitting cream review 31,  babysitting cream tips and tricks 31,  babysitting cream mods 31,  babysitting cream wiki 31,  babysitting cream android 31,  babysitting cream ios 31,  babysitting cream pc 31,  babysitting cream mac 31,  babysitting cream linux 31,  babysitting cream flash game 31,  babysitting cream unblocked 31,  babysitting cream full story 31,  babysitting cream best scenes 31,  babysitting cream easter eggs 31,  babysitting cream achievements 31,  babysitting cream speedrun 31,  babysitting cream alternatives 31,  babysitting cream sequel 31,  babysitting cream remake 31,  babysitting cream trivia 31,  babysitting cream memes 31,  babysitting cream quotes 31,  babysitting cream soundtrack 31,  babysitting cream voice actors 31,  babysitting cream developer 31,  babysitting cream rating 31,  babysitting cream genre 31,  babysitting cream release date 31,  babysitting cream demo 31,  babysitting cream beta 31,  babysitting cream bugs and glitches 31,  babysitting cream patch notes 31,  babysitting cream forum 31,  babysitting cream reddit 31,  babysitting cream discord server 31
+  
+Despite the negative reception, the game has a loyal fan base that enjoys its humor, gameplay, and fan service. The game has spawned several fan-made mods, spin-offs, and parodies. The game is also considered to be one of the most popular and influential games in the furry fandom.[10][11][12]
+ 8cf37b1e13
+ 
